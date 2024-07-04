@@ -2,7 +2,7 @@
 - 👀 I’m interested in thinging gamesa, minecraft and driving games
 - 🌱 I’m currently learning no coding languages
 - 💞️ I’m looking to help improve hypixel skyblock mods
-- 📫 How to reach me: Discord: Mr.Togo 
+- 📫 How to reach me: Discord: Mr.Togo | Start your dm with "Github" 
 - 😄 Pronouns: I dont care
 - ⚡ Fun fact: ...I love numbers? (im really good with them, but not words)
 
